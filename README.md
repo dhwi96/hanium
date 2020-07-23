@@ -1,1 +1,1 @@
- ![KakaoTalk](https://user-images.githubusercontent.com/51075438/84116949-bd289f00-aa6b-11ea-8b65-e301c3efcc45.jpg)
+![KakaoTalk_20200723_183152170](https://user-images.githubusercontent.com/51075438/88274778-35df7400-cd17-11ea-9254-86e3e806514a.jpg)
